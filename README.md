@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **piyushmishra272206@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EDzUqa8pxjlVFfiEtj9fWvtiGBpEgsIn/view?usp=sharing](https://drive.google.com/file/d/1EDzUqa8pxjlVFfiEtj9fWvtiGBpEgsIn/view?usp=sharing)
+- 📄 My Resume [https://drive.google.com/file/d/1EDzUqa8pxjlVFfiEtj9fWvtiGBpEgsIn/view?usp=sharing](https://drive.google.com/file/d/1EDzUqa8pxjlVFfiEtj9fWvtiGBpEgsIn/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
